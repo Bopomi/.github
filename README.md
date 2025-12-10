@@ -1,0 +1,2 @@
+# .github
+Rise and shine, Mr. Freeman. Rise and shine.
